@@ -1,1 +1,12 @@
-git 연습하기
+B
+B
+B
+B
+B
+B
+B
+B
+B
+B
+B
+B
